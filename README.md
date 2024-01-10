@@ -1,9 +1,9 @@
 # Alpinee69-
 
-Halooo
-Aku Gabut hehehe
+# Halooo
+*Aku Gabut hehehe
 Aku dari sunda
-Keren gaaa???
+Keren gaaa???*
 
 Jago main tennis, Ada lawan ga??
 Nih hubungin email ku
