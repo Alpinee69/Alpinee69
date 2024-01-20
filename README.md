@@ -1,6 +1,6 @@
 # Alpinee69-
 
-[<img align="right" height="350" alt="🦑" src="![23e4e7aa8e7a9e2dbc75fece9d77fc99](https://github.com/Alpinee69/Alpinee69/assets/144251580/9245c90b-a1f9-43dd-b9b1-43ac3a05d78e)">](#)  
+[<img align="right" height="350" alt="🦑" src="https://github.com/Alpinee69/Alpinee69/assets/144251580/9245c90b-a1f9-43dd-b9b1-43ac3a05d78e">](#)  
 
 *Aku Gabut hehehe
 Aku dari sunda
