@@ -2,9 +2,11 @@
 
 [<img align="right" height="350" alt="🦑" src="https://github.com/Alpinee69/Alpinee69/assets/144251580/9245c90b-a1f9-43dd-b9b1-43ac3a05d78e">](#)  
 
+<p align="right">
 *Aku Gabut hehehe
 Aku dari sunda
 Keren gaaa???*
+</p align="right">
 
 Jago main tennis, Ada lawan ga??
 Nih hubungin email ku
