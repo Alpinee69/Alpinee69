@@ -6,7 +6,6 @@
 *Aku Gabut hehehe
 Aku dari sunda
 Keren gaaa???*
-</p align="right">
 
 Jago main tennis, Ada lawan ga??
 Nih hubungin email ku
