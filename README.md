@@ -4,9 +4,7 @@
 
 ## Introduction
 
-*Aku Gabut hehehe
-Aku dari sunda
-Keren gaaa???*
+*My Name is Muhammad Deandra Al-Sidqi, I'm a Student at Bandung and currently at 9th Grade (Middle School)*
 
 Jago main tennis, Ada lawan ga??
 Nih hubungin email ku
