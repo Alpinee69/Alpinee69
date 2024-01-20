@@ -4,7 +4,7 @@
 
 ## Introduction
 
-_*My Name is Muhammad Deandra Al-Sidqi, I'm a Student at Bandung and currently at 9th Grade (Middle School)*_
+**_My Name is Muhammad Deandra Al-Sidqi, I'm a Student at Bandung and currently at 9th Grade (Middle School)_**
 
 
 Jago main tennis, Ada lawan ga??
